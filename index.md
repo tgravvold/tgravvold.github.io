@@ -1,2 +1,2 @@
 # Coming soon...
-Home for gravvold.net - work in progress.
+Something interesting might just happen to apper on this site any time in near the future.
